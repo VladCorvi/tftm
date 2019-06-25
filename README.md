@@ -11,4 +11,4 @@ Monoliths it's a story about people with color abilities in the dangerous world 
 
 Content:
 
-Cardstory | Lesquitet | Drafts | Work in progress| Text notes |
+Cardstory | Lesquitet | Drafts | Work in progress | Text notes |
